@@ -1,1 +1,1 @@
-Mikołaj Śniechowski - Zadania Rekrutacyjne 
+Mikołaj Śniechowski - Zadania Rekrutacyjne na praktyki do firmy Stigal
